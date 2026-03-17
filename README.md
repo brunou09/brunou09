@@ -1,4 +1,4 @@
-[![](https://i.pinimg.com/originals/2b/de/7d/2bde7d14133968f97d6c4dd898edb989.gif)
+![](https://i.pinimg.com/originals/2b/de/7d/2bde7d14133968f97d6c4dd898edb989.gif)
 
 # 💫 About Me:
 Hi there! I’m Bruno Mendes Abreu<br><br>- 17 years old<br>- Studying Systems Development at Escola SESI de Referência Moinho (Joinville-SC, Brazil)<br>- Fluent in English<br>- Open to job opportunities
